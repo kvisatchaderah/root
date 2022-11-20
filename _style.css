@@ -1,0 +1,30 @@
+body {
+	background-color: #000;
+	color: #fff;
+	height: 100vh;
+
+	display: flex;
+	justify-content: center;
+	align-items: center;
+
+	font-weight: bold;
+}
+
+*,
+*:after,
+*:before {
+	box-sizing: border-box;
+}
+
+svg {
+	height: 30vh;
+	margin-bottom: 20vh;
+	display: block;
+}
+
+button {
+	font-size: 24px;
+	display: block;
+	padding: 12px;
+	cursor: pointer;
+}

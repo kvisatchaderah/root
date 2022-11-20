@@ -1,0 +1,103 @@
+router push -> router replace
+
+
+
+доренко 36 04
+arrayCopy = array.concat()
+router-link custom
+router active/exact-active
+router-link props exact
+router 404
+router props: true
+router childrens: [path: ':prop']
+InstallTrigger is deprecated and will be removed in the future.
+transform: skewX(-45deg);
+stroke-dasharray: 352 352;
+stroke-dashoffset: 352;
+git stash
+экма прокси
+ураборос
+обсервыбл
+autoimport
+крайний космос
+Андрей Курпатов на QWERTY
+Как поймать серийного убийцу за 24 часа Загадка QWERTY
+Анна Старшенбаум maxim
+window.AcceptCookie
+тео комперолле мозг освобожденный
+vim
+
+
+
+А люди? Ну на что мне люди?
+Идет мужик, ведет быка.
+Сидит торговка: ноги, груди,
+Платочек, круглые бока.
+
+
+
+Конечно, есть и развлеченья:
+Страх бедности, любви мученья,
+Искусства сладкий леденец,
+Самоубийство, наконец.
+
+
+
+алгоритм фейнмана
+1. сформулировать задачу
+2. хорошенько подумать
+3.записать решение
+    
+когда люди перестанут делать неправду Я два месяца просидел над рассказиком для журнала, хотя наперед знал, что, кончив, выброшу его в корзину. Что там, сгорел бы поскорее этот дом со всеми моими рукописями, а еще лучше — и со мною
+Фрэнсис Скотт Фицджеральд
+
+Бывает, во время письма ты впадаешь в ступор и слышишь голос в голове: «Нет, не то». Не жалуйся потом, что тебя не предупреждали
+Рей Брэдбери
+
+так выглядит. сяк выглядит. пусть женщины об этом думают. задача мужчины быть а не казаться
+
+я был все в том же сером аду. чистилище лучше ада. но посидишь в нем лет так тысячу и начнешь
+думать о том там ли горяч адский огонь как о нем говорят?
+
+взять бы моэма за шкирку да спросить: откуда ты берешь эти образы гад. эти формы. тебе их кто
+то нашептывает, да? нашептывает только вот трясти некого. и в голове тишина
+
+не захотев стать частью стаи я не стал львом. я был все тои же овцой, просто
+теперь эта овца бродила в одиночестве
+фильм икарус
+
+
+
+April Olsen
+Lylyta Yung
+Arina Shy
+https://pornolab.net/forum/viewtopic.php?t=2711258
+https://pornolab.net/forum/viewtopic.php?t=2840828
+GirlsDoPorn.com
+https://pornolab.net/forum/viewtopic.php?t=2693627
+https://pornolab.net/forum/viewtopic.php?t=2833675
+https://pornolab.net/forum/viewtopic.php?t=2841280
+https://pornolab.net/forum/viewtopic.php?t=2691955
+https://pornolab.net/forum/viewtopic.php?t=2829192
+
+удалить
+Agnes, The Crazy Anal Teacher
+analmom_hyley_winters
+Atomi Shuri
+charlie_valentine_and_maya_woulfe
+Sunset Diamond
+'Lustery.com - E281 - Jamie, Nico - You Had Me At Hello - 2020.mp4'
+Anya Krey
+
+улучшить
+7888.mp4
+'[DaughterSwap] Alexa Grace - Cheerleaders (01.04.2016) rq.mp4'
+plib_tori_black02-sd169.mp4
+
+
+
+думай или потребляй
+не отвлекайся
+первые 24 минуты мозг не думает
+определение значимости / потребление / мышление
+потребил - возьми паузу подумай. перевари
