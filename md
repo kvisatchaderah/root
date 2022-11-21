@@ -1,7 +1,3 @@
-router push -> router replace
-
-
-
 Укравшему на рынке напёрсток - отрубят руку. Укравшему
 царство - позволят создать династию
 
@@ -12,7 +8,8 @@ router push -> router replace
 обретением желаемого в древности называли ту
 радость, к которой нечего добавить
 
-доренко 36 04
+
+
 arrayCopy = array.concat()
 router-link custom
 router active/exact-active
@@ -29,10 +26,6 @@ git stash
 ураборос
 обсервыбл
 autoimport
-крайний космос
-Андрей Курпатов на QWERTY
-Как поймать серийного убийцу за 24 часа Загадка QWERTY
-Анна Старшенбаум maxim
 window.AcceptCookie
 тео комперолле мозг освобожденный
 vim
@@ -56,9 +49,11 @@ vim
 алгоритм фейнмана
 1. сформулировать задачу
 2. хорошенько подумать
-3.записать решение
+3. записать решение
     
-когда люди перестанут делать неправду Я два месяца просидел над рассказиком для журнала, хотя наперед знал, что, кончив, выброшу его в корзину. Что там, сгорел бы поскорее этот дом со всеми моими рукописями, а еще лучше — и со мною
+когда люди перестанут делать неправду
+
+Я два месяца просидел над рассказиком для журнала, хотя наперед знал, что, кончив, выброшу его в корзину. Что там, сгорел бы поскорее этот дом со всеми моими рукописями, а еще лучше — и со мною
 Фрэнсис Скотт Фицджеральд
 
 Бывает, во время письма ты впадаешь в ступор и слышишь голос в голове: «Нет, не то». Не жалуйся потом, что тебя не предупреждали
@@ -74,35 +69,6 @@ vim
 
 не захотев стать частью стаи я не стал львом. я был все тои же овцой, просто
 теперь эта овца бродила в одиночестве
-фильм икарус
-
-
-
-April Olsen
-Lylyta Yung
-Arina Shy
-https://pornolab.net/forum/viewtopic.php?t=2711258
-https://pornolab.net/forum/viewtopic.php?t=2840828
-GirlsDoPorn.com
-https://pornolab.net/forum/viewtopic.php?t=2693627
-https://pornolab.net/forum/viewtopic.php?t=2833675
-https://pornolab.net/forum/viewtopic.php?t=2841280
-https://pornolab.net/forum/viewtopic.php?t=2691955
-https://pornolab.net/forum/viewtopic.php?t=2829192
-
-удалить
-Agnes, The Crazy Anal Teacher
-analmom_hyley_winters
-Atomi Shuri
-charlie_valentine_and_maya_woulfe
-Sunset Diamond
-'Lustery.com - E281 - Jamie, Nico - You Had Me At Hello - 2020.mp4'
-Anya Krey
-
-улучшить
-7888.mp4
-'[DaughterSwap] Alexa Grace - Cheerleaders (01.04.2016) rq.mp4'
-plib_tori_black02-sd169.mp4
 
 
 
