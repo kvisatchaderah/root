@@ -55,6 +55,20 @@ Disturbed - Open Your Eyes
 Disturbed - Perfect Insanity
 
 
+Need For Speed
+---------------
+Let's Move
+Sets go up
+Fired Up
+B Side Wins Again(2005)
+Shapeshifter(feat.Style of Beyond)
+The Mann (EA Games Soundtrack)
+Most Wanted Mash Up
+
+
+Disturbed-Decadence
+
+
 DISTURBED
 03. The Vengeful One - 8:48
 04. The Light - 13:00
