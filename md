@@ -80,7 +80,8 @@ DISTURBED
 17. Haunted - 1:08:39
 18. Voices - 1:13:20
 19. Decadence - 1:16:32
-
+Enough
+The Curse
 
 
 Я встретил путника; он шел из стран далеких
