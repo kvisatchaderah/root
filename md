@@ -44,6 +44,16 @@ POWERWOLF - Beast Of Gévaudan
 Lacuna Coil - Veneficium
 Chingy - I Do
 Terror Squad - Lean Back
+Disturbed - No More
+Disturbed - Are You Ready
+Disturbed - Decadence
+Disturbed - Droppin Plates
+Disturbed - Liberate
+Disturbed - Living After Midnight
+Disturbed - Legion of Monsters
+Disturbed - Open Your Eyes
+Disturbed - Perfect Insanity
+
 
 DISTURBED
 03. The Vengeful One - 8:48
