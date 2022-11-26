@@ -9,6 +9,44 @@
 радость, к которой нечего добавить
 
 
+Capone - I Need Speed
+Би-2 — Пекло
+Би-2 — Я никому не верю
+Би-2 feat. Oxxxymiron — Пора возвращаться домой
+Би-2 – Чёрное солнце
+Павел Пламенев и FIZICA - Уважай нашу власть!
+Павел Пламенев и Павел Иванов ("Fun Mode") - Стадо у телека
+POWERWOLF - Demons Are A Girl's Best Friend
+POWERWOLF - Dancing With The Dead
+POWERWOLF - Army Of The Night
+POWERWOLF - Venom Of Venus
+POWERWOLF - Killers With The Cross
+POWERWOLF - My Will Be Done
+Артем Пивоваров - Ой На Горі
+TETRARCH - You Never Listen
+POWERWOLF - Alive Or Undead
+Powerwolf - Sanctified With Dynamite
+Би-2 – Компромисс
+Псалом Борис Гребенщиков
+Son of a Wolf POWERWOLF
+POWERWOLF - Kiss Of The Cobra King
+Disturbed - Bad Man
+Disturbed - The Sound Of Silence
+Disturbed - Stricken
+Bad Wolves - Zombie
+Disturbed - Hey You
+Poets of the Fall - Carnival of Rust
+Артем Пивоваров - Радісно/Страшно
+Артем Пивоваров х Kalush - Майбутність
+Артем Пивоваров & NK - Там У Тополі
+POWERWOLF - Beast Of Gévaudan
+Каста — Скрепы
+Lacuna Coil - Veneficium
+Chingy - I Do
+Terror Squad - Lean Back
+
+
+
 
 Я встретил путника; он шел из стран далеких
 И мне сказал: вдали, где вечность сторожит
