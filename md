@@ -45,6 +45,17 @@ Lacuna Coil - Veneficium
 Chingy - I Do
 Terror Squad - Lean Back
 
+DISTURBED
+03. The Vengeful One - 8:48
+04. The Light - 13:00
+08. Inside the Fire - 30:54
+09. Stupify - 34:46
+11. Ten Thousand Fists - 44:06
+14. The Infection - 56:05
+16. Another Way to Die - 1:04:06
+17. Haunted - 1:08:39
+18. Voices - 1:13:20
+19. Decadence - 1:16:32
 
 
 
