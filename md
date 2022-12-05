@@ -41,7 +41,118 @@ Numb
 обретением желаемого в древности называли ту
 радость, к которой нечего добавить
 
+<<<<<<< HEAD
 Маленький человек маленькое зло за зло не держит, и потому никогда не удерживается от маленького зла, а маленькое добро и добром-то не считает, потому маленького добра не делает
+=======
+
+АРТЕМ ПИВОВАРОВ
+Дежавю
+Рандеву
+Кислород
+Мираж
+Позови
+Дом
+Оазис
+Карма
+No.1
+Романс (feat. Олег Скрипка)
+
+
+Capone - I Need Speed
+Би-2 — Пекло
+Би-2 — Я никому не верю
+Би-2 feat. Oxxxymiron — Пора возвращаться домой
+Би-2 – Чёрное солнце
+Павел Пламенев и FIZICA - Уважай нашу власть!
+Павел Пламенев и Павел Иванов ("Fun Mode") - Стадо у телека
+POWERWOLF - Demons Are A Girl's Best Friend
+POWERWOLF - Dancing With The Dead
+POWERWOLF - Army Of The Night
+POWERWOLF - Venom Of Venus
+POWERWOLF - Killers With The Cross
+POWERWOLF - My Will Be Done
+Артем Пивоваров - Ой На Горі
+TETRARCH - You Never Listen
+POWERWOLF - Alive Or Undead
+Powerwolf - Sanctified With Dynamite
+Би-2 – Компромисс
+Псалом Борис Гребенщиков
+Son of a Wolf POWERWOLF
+POWERWOLF - Kiss Of The Cobra King
+Disturbed - Bad Man
+Disturbed - The Sound Of Silence
+Disturbed - Stricken
+Bad Wolves - Zombie
+Disturbed - Hey You
+Poets of the Fall - Carnival of Rust
+Артем Пивоваров - Радісно/Страшно
+Артем Пивоваров х Kalush - Майбутність
+Артем Пивоваров & NK - Там У Тополі
+POWERWOLF - Beast Of Gévaudan
+Каста — Скрепы
+Lacuna Coil - Veneficium
+Chingy - I Do
+Terror Squad - Lean Back
+Disturbed - No More
+Disturbed - Are You Ready
+Disturbed - Decadence
+Disturbed - Droppin Plates
+Disturbed - Liberate
+Disturbed - Living After Midnight
+Disturbed - Legion of Monsters
+Disturbed - Open Your Eyes
+Disturbed - Perfect Insanity
+
+
+Need For Speed
+---------------
+Let's Move
+Sets go up
+Fired Up
+B Side Wins Again(2005)
+Shapeshifter(feat.Style of Beyond)
+The Mann (EA Games Soundtrack)
+Most Wanted Mash Up
+
+
+Disturbed-Decadence
+
+
+DISTURBED
+03. The Vengeful One - 8:48
+04. The Light - 13:00
+08. Inside the Fire - 30:54
+09. Stupify - 34:46
+11. Ten Thousand Fists - 44:06
+14. The Infection - 56:05
+16. Another Way to Die - 1:04:06
+17. Haunted - 1:08:39
+18. Voices - 1:13:20
+19. Decadence - 1:16:32
+Enough
+The Curse
+
+
+Я встретил путника; он шел из стран далеких
+И мне сказал: вдали, где вечность сторожит
+Пустыни тишину, среди песков глубоких
+Обломок статуи распавшейся лежит.
+
+Сурово сжатый рот, усмешка гордой власти,
+Твердит, как глубоко ваятель понял страсти,
+Что пережить смогли солгавший им язык,
+Служившую им длань и сердце — их родник.
+
+Вокруг подножия слова видны в граните:
+«Я — Озимандия, великий царь царей.
+Взгляните на мои деянья и дрожите!»
+
+Кругом нет ничего. Истлевший мавзолей
+Пустыней окружен. Гуляет ветр свободный
+И стелются пески, безбрежны и бесплодны.
+
+
+>>>>>>> 5c73fcc6394bbf318ab64b7b5f2d5739b39c39e4
 
 arrayCopy = array.concat()
 router-link custom
